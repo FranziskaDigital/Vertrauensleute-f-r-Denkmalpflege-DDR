@@ -1,1 +1,1 @@
-# Vertrauensleute-f-r-Denkmalpflege-DDR
+# Vertrauensleute-für-Denkmalpflege-DDR
